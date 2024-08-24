@@ -19,7 +19,7 @@
 ### 𝓒𝓸𝓷𝓽𝓪𝓬𝓽 𝓜𝓮
 - **Discord**: xdim
 - **Email**: gore@darkweb.com
-- **Website**: [gore](Bestgore.com)
+- **Website**: [gore](https://bestgore.com)
 
 ### 𝓣𝓱𝓮 𝓡𝓮𝓹𝓸𝓼𝓲𝓽𝓸𝓻𝓲𝓮𝓼
 - **Haunted Code**: Scripts that whisper into the night
