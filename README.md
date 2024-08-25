@@ -18,7 +18,7 @@
 
 ### 𝓒𝓸𝓷𝓽𝓪𝓬𝓽 𝓜𝓮
 - **Discord**: xdim
-- **Email**: gore@darkweb.com
+- **Email**: gore@bestgore.com
 - **Website**: [gore](https://bestgore.com)
 
 ### 𝓣𝓱𝓮 𝓡𝓮𝓹𝓸𝓼𝓲𝓽𝓸𝓻𝓲𝓮𝓼
